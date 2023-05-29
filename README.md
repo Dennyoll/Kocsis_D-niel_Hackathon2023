@@ -1,1 +1,1 @@
-# Kocsis_D-niel_Hackathon2023
+# Kocsis_Dániel_Hackathon2023
